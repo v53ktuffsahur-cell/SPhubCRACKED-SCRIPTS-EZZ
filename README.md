@@ -9,5 +9,6 @@ SP Hub cracked scripts because one of their owners keeps acting like they know e
 - cracked SP Hub scripts
 
 funny how they charge people for premium when they can't even make a decent obfuscator themselves.
+idk how the FUCK they have 10k members their scripts are SHIT.
 
 # DON'T WASTE YOUR MONEY ON THEIR PREMIUM SCRIPTS OR OBFUSCATOR.
